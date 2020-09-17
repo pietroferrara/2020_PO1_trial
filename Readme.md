@@ -1,2 +1,2 @@
 Pietro is here
-Giulio is here as well
+Giulio is here as well still alive
